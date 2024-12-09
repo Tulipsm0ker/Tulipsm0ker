@@ -1,13 +1,13 @@
 # ₊˚౨ 🌷˚₊                      
-![image](https://github.com/user-attachments/assets/280b56ca-5393-4fca-a387-071ad9c57c5f)
+![image](https://github.com/user-attachments/assets/f22b25fe-c929-4984-97b9-b489ba37f1ad)
 
 
 
 
-♡ ANY PRONOUNS !! ; Minor !
+<p align="center">♡ ANY PRONOUNS !! ; Minor ! </p>
 
 
-︴ Feel free to C + H ! I LOVE THOSE ~ Semi-afk most of the time or offtab
+<p align="center">︴ Feel free to C + H ! I LOVE THOSE ~ Semi-afk most of the time or offtab </p>
 
 
-✧ CHECK CARRD/STRAWPAGE FOR MY SOCIALS!!
+<p align="center"> ✧ CHECK CARRD/STRAWPAGE FOR MY SOCIALS!! </p>
