@@ -1,4 +1,5 @@
 # ₊˚౨ 🌷˚₊                      
+
 ![image](https://github.com/user-attachments/assets/f22b25fe-c929-4984-97b9-b489ba37f1ad)
 
 
@@ -11,3 +12,5 @@
 
 
 <p align="center"> ✧ CHECK CARRD/STRAWPAGE FOR MY SOCIALS!! </p>
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Tulipsm0ker)
