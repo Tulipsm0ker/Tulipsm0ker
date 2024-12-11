@@ -13,4 +13,4 @@
 
 <p align="center"> ✧ CHECK CARRD/STRAWPAGE FOR MY SOCIALS!! </p>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Tulipsm0ker)
+
