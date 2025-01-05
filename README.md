@@ -11,6 +11,6 @@
 <p align="center">︴ Feel free to C + H ! I LOVE THOSE ~ Semi-afk most of the time or offtab </p>
 
 
-<p align="center"> ✧ CHECK CARRD/STRAWPAGE FOR MY SOCIALS!! </p>
+<p align="center"> ✧ CHECK CARRD/STRAWPAGE FOR MORE!! </p>
 
 
